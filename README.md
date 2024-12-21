@@ -1,5 +1,9 @@
 # 💫 About Me:
 Im currenty studing 
+🔐 Cybersecurity Enthusiast
+🧠 Innovator at Heart
+🤝 Team Player & Mentor
+🌍 Mission-Driven
 
 
 ## 🌐 Socials:
